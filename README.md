@@ -13,6 +13,7 @@
 
 ![image](https://github.com/user-attachments/assets/885487be-b809-48b7-95d9-9d86aae0d7a8)
 - větší bonus za
+  
 ![image](https://github.com/user-attachments/assets/d2771b50-369d-4bf0-bf75-d4391a21c609)
 
 ### 4. Start rakety
